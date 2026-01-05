@@ -1,0 +1,2 @@
+# praktikum-ai
+ ANALYSIS - BAHASA INDONESIA
